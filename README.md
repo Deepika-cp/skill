@@ -1,1 +1,2 @@
 # skill
+i love myself
